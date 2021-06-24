@@ -1,1 +1,1 @@
-#SİLİNDİ
+deneme2
